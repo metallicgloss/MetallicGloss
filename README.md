@@ -29,8 +29,8 @@ Looking to get in touch or to ask a question? Interested in hosting solutions at
     
 • LinkedIn - [/MetallicGloss](https://www.linkedin.com/in/metallicgloss/)   
 • Twitter - [@MetallicGloss](https://www.twitter.com/metallicgloss/)   
-• Email - [Personal](mailto:hello@william-phillips.com)   
-• Discord - Metallic#0001
+• Email - [Personal](mailto:hello@william-phillips.com)
+• Discord - [Metallic#0001](https://discord.com/users/167728820114161674)
 
 <br>
 <br>
